@@ -1,4 +1,4 @@
-# Gday, I am Merab👋
+# G'day, I am Merab👋
 
 ## Web Developer | Cybersecurity enthusiast</br>
 
